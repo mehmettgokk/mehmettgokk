@@ -4,7 +4,7 @@
 
 
 ### About Me  
-- 💻 I have been interning at Pallas Software and Consultancy for 10 months.   
+- 💻 I have been interning at Pallas Software and Consultancy for 11 months.   
   
 
 - 🧑‍🎓 I’m currently student at Manisa Celal Bayar university.   
